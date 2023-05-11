@@ -1,0 +1,1 @@
+the words and hints are not added for food and countries
